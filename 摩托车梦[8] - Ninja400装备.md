@@ -1,7 +1,8 @@
 # 摩托车
 
 2019年9月21日在重庆举办的第十七届中国国际摩托车博览会上，我在川崎重庆官方4s店展台预定了川崎2020款Ninja400，定金5000；等待7个月，最终在2020年4月29日提车。
-![image](https://user-images.githubusercontent.com/11970778/110227704-32ab9800-7f36-11eb-9171-e0c9d819d3f4.png)
+![image](https://user-images.githubusercontent.com/11970778/110227727-61297300-7f36-11eb-8f86-5b7b94474bce.png)
+
 
 
 # 装备
